@@ -1,5 +1,5 @@
 # SuperCoolProject
 
-Guys im having second thoughts, this might not be as cool as I thought.
+I am taking this with Song now instead of Cerny.
 
-Mark Fuller
+Alex Kubicek
